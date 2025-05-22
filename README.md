@@ -1,0 +1,2 @@
+# Novan-cv
+Tugas UTS
